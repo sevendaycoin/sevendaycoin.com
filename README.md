@@ -1,0 +1,2 @@
+# sevendaycoin.com
+page
